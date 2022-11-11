@@ -1,1 +1,1 @@
-# Course in WUSTL
+# Courses in WUSTL
